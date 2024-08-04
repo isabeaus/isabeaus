@@ -17,3 +17,5 @@ byleth (fe3h)<br>
 edelgard (fe3h)<br>
 ranni the witch (elden ring)<br>
 travis touchdown (nmh)<br>
+argalia (lor)<br>
+hinata (naruto)<br>
